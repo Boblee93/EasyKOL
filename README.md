@@ -1,3 +1,5 @@
+**Supported Platforms:[easykol]([(https://easykol.com/))** 
+
 **Supported Platforms:** 
 Youtube & tiktok & Instagram
 
