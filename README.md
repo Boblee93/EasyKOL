@@ -1,6 +1,5 @@
 **Supported Platforms:** 
-
-![image.png](https://prod-files-secure.s3.us-west-2.amazonaws.com/b7acdbc2-f67b-431e-8171-849a6a6e77a4/9920bd12-72d8-4f74-b325-f19519722a79/image.png)
+Youtube & tiktok & Instagram
 
 **Step 1: Open the creator you think is the most suitable**
 
