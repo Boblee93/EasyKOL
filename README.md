@@ -1,4 +1,4 @@
-**Supported Platforms:[easykol]([(https://easykol.com/))** 
+**WEB:[EasyKOL](https://easykol.com/)** 
 
 **Supported Platforms:** 
 Youtube & tiktok & Instagram
